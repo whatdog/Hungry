@@ -46,6 +46,6 @@ Notes
 ==========
 
 Makes lots more gravy than original, but it works out with rice.   
-Following Serious Eats advice about browning meat in large steaks vs. chunks.   
+Following Serious Eats advice about browning meat in large steaks vs. chunks.  https://www.seriouseats.com/2016/01/stew-science-the-best-way-to-brown-beef.html    
 Adding daikon because Chinese.   
 
