@@ -15,7 +15,7 @@ Ingredients
  - 2 medium carrots, finely chopped
  - 2 cloves garlic, minced
  - 4 cups bean water
- - 1 14.5-ounce can diced tomatoes organic and BPA free
+ - 1 14.5-ounce can diced tomatoes
  - 1 2-inch chunk parmesan rind optional
  - 1/2 teaspoon salt
  - 1/4 teaspoon black pepper
@@ -38,4 +38,4 @@ To serve, portion the pasta into serving bowls and ladle the hot soup over the p
 Notes
 =====
 
-I like this because it is just 1-2 cups of whatever veggie.
+I like this because it is just 1-2 cups of whatever veggie. I think I end up adding more.
