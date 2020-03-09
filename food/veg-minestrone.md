@@ -26,13 +26,14 @@ Ingredients
 
 Preparation
 ===========
-    Heat the olive oil in a saucepan over medium-high heat. Cook the onion, carrots and garlic, stirring for about 4 minutes until the onion turns translucent but the vegetables do not brown.
 
-    Bring the bean water and tomatoes with their juice to a simmer. Add the parmesan rind, if using, salt and pepper and check for seasoning, adding additional salt to suit your taste. (You can prepare the soup in advance up to this point.) Simmer for about 15 minutes.
+Heat the olive oil in a saucepan over medium-high heat. Cook the onion, carrots and garlic, stirring for about 4 minutes until the onion turns translucent but the vegetables do not brown.
 
-    Add your choice of green vegetable and simmer until cooked through but the vegetables still have some life and texture, about 15 minutes.
+Bring the bean water and tomatoes with their juice to a simmer. Add the parmesan rind, if using, salt and pepper and check for seasoning, adding additional salt to suit your taste. (You can prepare the soup in advance up to this point.) Simmer for about 15 minutes.
 
-    To serve, portion the pasta into serving bowls and ladle the hot soup over the pasta. Top with a portion of parmesan cheese, if using.
+Add your choice of green vegetable and simmer until cooked through but the vegetables still have some life and texture, about 15 minutes.
+
+To serve, portion the pasta into serving bowls and ladle the hot soup over the pasta. Top with a portion of parmesan cheese, if using.
 
 Notes
 =====
