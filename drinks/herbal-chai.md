@@ -34,3 +34,5 @@ Notes
 =====
 I'm not too picky about adding the right amount of reishi, astragalus, codonopsis. I just toss a few stalks of each in.
 I make up a batch and put it in the refrigerator so lazy me can nuke it a bit and add hot water to heat it the rest of the way up.
+
+I came across this recipe a while back when it was still http://www.methowvalleyherbs.com/2012/12/creating-herbal-medicine-chest-for-cold.html
