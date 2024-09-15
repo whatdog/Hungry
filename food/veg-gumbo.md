@@ -19,6 +19,7 @@ For the mushroom stock:
   - 1 small leek (split in half, trimmed of dark green part and stem)
   - 2 large stalks celery
   - 4 cups (1 quart) water
+    
 For the gumbo:
   - 1 cup dried black-eyed peas (soaked overnight)
   - 1/2 cup dried baby lima beans (soaked overnight)
@@ -26,10 +27,10 @@ For the gumbo:
   - 3 garlic cloves, crushed
   - 2 large stalks celery
   - 1 medium green bell peppers
-  - 1/2 cup sustainable red palm oil
+  - 1/2 cup sustainable red palm oil (or whatever oil)
   - 1/2 cup all-purpose flour
   - 1 1/2 teaspoons kosher salt, divided, plus more as needed
-  - 1 Scotch bonnet pepper (pierced and de-seeded)
+  - 1 Scotch bonnet pepper (pierced and de-seeded) (used whatever pepper was in the garden)
   - 1 tablespoon BTB fake chicken broth
   - 1 tablespoon tomato paste
   - 1/2 pound okra (cut cross-wise and into 1/2 - 1/3 inch pieces)
